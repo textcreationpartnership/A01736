@@ -35,21 +35,39 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A short treatise against the Donatists of England, whome we call Brownists Wherein, by the answeres 
+
+1. To the right Honourable, Sir VVilliam Cecill, Knight of the Garter, Baron of Burghley, Lorde high Treaſurer of England, and Chancelor of the Vniuerſitie of Cambridge, Grace and peace.
+
+1. The Preface to the gentle Reader.
+
 #####Body#####
-G. G. 1 IN my former anſwer vnto theſe your articles which ye call A breefe ſum of your profeſſion, G. G. All ſuch as take vpon them to iudge and condemne whole aſſemblies, that profeſſe the Goſpell, To this I did anſwer, that our worſhip is the imbracing of the holy Bible: by the doctrine thereof, G. G. To the intent that mine anſwer and your accuſation may ſtand the cléerer to be ſéene into, andG. G.Read prayer is one chiefe thing for which yee condemneour worſhip as Idolatrous and moſt deteſtI did confeſſe, and doo ſtill with gréefe, that in very manyeG. G. aſſemblies in England, all are adThe third fault is an Antichriſtian miniſterie impoſed andG. G. maintained. Héere is no reaſon rendrWhat reaſons yée haue brought in your two former accuſations,G. G. or in this third, to prooue the MThe fourth fault is, in the ſubiection to an AntichriſtianG. G. gouernment. If it were admitted thatTo this fourth accuſation, my anſwere was very ſhort:G. G. for I did only propound this queſtion, wh
-1. Article 1.
 
-1. Article 2.
+1. A breefe ſum of the profeſsion of the Browniſts.
+1 They worſhip the true God after a falſe manner, their worſhip being made of the inuention of man, G. G. 1 IN my former anſwer vnto theſe your articles which ye call A breefe ſum of your profeſſion, 
+1. The Browniſts.
+G. G. All ſuch as take vpon them to iudge and condemne whole aſſemblies, that profeſſe the Goſpell, 
+1. The firſt principall crime obiected by the Browniſts.
+To this I did anſwer, that our worſhip is the imbracing of the holy Bible: by the doctrine thereof, The Brow.The firſt tranſgreſſion we charge your aſſemblies with, isthat you worſhip God after a falſG. G. To the intent that mine anſwer and your accuſation may ſtand the cléerer to be ſéene into, andThe Brow▪Iohn. 4. 23. 24.God is a Spirit, and muſt be worſhipped in ſpirit and truth.The reaſons whyG. G.Read prayer is one chiefe thing for which yee condemneour worſhip as Idolatrous and moſt deteſt
+1. The ſecond tranſgreſsion.
+I did confeſſe, and doo ſtill with gréefe, that in very manyeG. G. aſſemblies in England, all are ad
+1. The third accuſation.
+The third fault is an Antichriſtian miniſterie impoſed andG. G. maintained. Héere is no reaſon rendrThe Brow.Heere you ſay is no reaſon rendered by vs, why it is a falſeand Antichriſtian miniſtery whiWhat reaſons yée haue brought in your two former accuſations,G. G. or in this third, to prooue the M
+1. The fourth tranſgreſsion.
+The fourth fault is, in the ſubiection to an AntichriſtianG. G. gouernment. If it were admitted thatThe Brow.But oh how farre are you from this? which winckewith your eyes, ſtoppe your eares, and hardTo this fourth accuſation, my anſwere was very ſhort:G. G. for I did only propound this queſtion, whArticle 1.The Brow.We ſeeke aboue all things the peace and protection ofthe moſt high, and the kingd
+    _ Article 1.
 
-1. Article 3.
+    _ Article 2.
 
-1. Article 4.
+    _ Article 3.
 
-1. Article 5.
+    _ Article 4.
+
+    _ Article 5.
 
 #####Back#####
-A short treatise against the Donatists of England, whome we call Brownists Wherein, by the answeres 
+
+1. Faultes eſcaped.
+AT LONDON Printed by Iohn VVindet, for Toby Cooke, and are to be ſold at his ſhop in Paules Churchya
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
